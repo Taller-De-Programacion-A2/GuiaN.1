@@ -1,6 +1,6 @@
 # GuiaN.1
 ## Link of the video
-
+https://youtu.be/c-f_EV_CmVU
 
 ## Preguntas Orientadoras
 ¿Cuáles fueron los aprendizajes obtenidos al realizar esta guía?, liste como mínimo 3 aprendizajes y relaciónelos con su futuro quehacer profesional.
